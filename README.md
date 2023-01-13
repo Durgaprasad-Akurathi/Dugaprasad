@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dugaprasad
+- 👋 Hi, I’m @Durgaprasad
 - 👀 I’m interested in engineering
 - 🌱 I’m currently pursuing my ENGINERING at LOVELY PROFESSIONAL UNIVERSITY
 - I am always learning new things and i am looking for the challanges and take risks and find solutions in that situation in another way.
