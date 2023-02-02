@@ -1,8 +1,11 @@
 - 👋 Hi, I’m @Durgaprasad
-- 👀 I’m interested in engineering
-- 🌱 I’m currently pursuing my ENGINERING at LOVELY PROFESSIONAL UNIVERSITY
-- I am always learning new things and i am looking for the challanges and take risks and find solutions in that situation in another way.
-- >> Hardwork >> Dedication >> Self Confidance >> SUCCESS
+- 👀 I love coding
+- 🌱 I’m currently pursuing my Electronics & Communication Engineering in LOVELY PROFESSIONAL UNIVERSITY (LPU)
+- To secure a responsible position in my career, I continuously acquire knowledge and maintain dedication towards my work and fully utilize my skills.
+- I'm always love to solve the problems.
+- >>Smallest Achievements Gives lots of Confindent. 
+- >> Hardwork >> Dedication >> Self Confidance >> SUCCESS✨
+- 
 
 <!---
 Dugaprasad/Dugaprasad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
