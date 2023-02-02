@@ -5,7 +5,6 @@
 - I'm always love to solve the problems.
 - >>Smallest Achievements Gives lots of Confident. 
 - >> Hardwork >> Dedication >> Self Confidance >> SUCCESS✨
-- 
 
 <!---
 Dugaprasad/Dugaprasad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
